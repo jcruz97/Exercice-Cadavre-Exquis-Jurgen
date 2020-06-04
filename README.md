@@ -17,4 +17,5 @@ Il sortit du __cercle d'étudiant Namurois__ à la conquête d'un *Baptisé* à 
 __*petit fût solitaire*__ tomba nez à nez avec une bouteille de taille magnum d'une bière Trappiste et ce fut le coup de foudre, ni une ni deux et prenant son courage à deux _mains_,
 il commenca la conversation par une blague telllement nulle qu'il se mis sous __pression__ !
 
-
+> Je ne subis pas la pression, je la bois !
+__*Petit fût solitaire*__ tomba à l'eau qui commença aussitôt à mousser. La trappiste suivi et entre bulles et mousse, __*petit fût solitaire*__ ne fut plus jamais seul.
