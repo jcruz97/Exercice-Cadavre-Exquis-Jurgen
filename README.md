@@ -14,3 +14,7 @@ _Robin_ |
 Attristé par ce qu'il venait d'apprendre, le __*petit fût solitaire*__ décidé de se venger d'avoir été abandonné à son triste _sort_. 
 Il sortit du __cercle d'étudiant Namurois__ à la conquête d'un *Baptisé* à saloué. Mais alors qu'il venait de faire 3 pas dehors, il découvrit quelque choses d'__*inatendu*__ :tada:
  
+__*petit fût solitaire*__ tomba nez à nez avec une bouteille de taille magnum d'une bière Trappiste et ce fut le coup de foudre, ni une ni deux et prenant son courage à deux _mains_,
+il commenca la conversation par une blague telllement nulle qu'il se mis sous __pression__ !
+
+
