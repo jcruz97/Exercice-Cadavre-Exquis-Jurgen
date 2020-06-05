@@ -8,8 +8,6 @@ Les étudiants étaient en confinement.
 Le petit fût se sentit alors délaissé.
 Sans tous ces étudiants qui n'avaient plus l'envie de s'alcooliser.
 
-_Robin_ |
-------
 
 Attristé par ce qu'il venait d'apprendre, le __*petit fût solitaire*__ décida de se venger d'avoir été abandonné à son triste _sort_. 
 Il sortit du __cercle d'étudiants Namurois__ à la conquête d'un *Baptisé* à salouer. Mais alors qu'il venait de faire 3 pas dehors, il découvrit quelque choses d'__*innatendu*__ :tada:
